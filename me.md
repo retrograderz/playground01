@@ -9,3 +9,5 @@ Các bạn có thể tìm mình ở đây nhé:
 - [Discord (Server có mình thui)](https://discord.gg/uQJPbcND)
 
 Các bạn cứ vô tư nghịch repo này nhé! 
+
+<img src="https://media.giphy.com/media/v1.Y2lkPWVjZjA1ZTQ3cDlsN3F2MmhodzAxaGE2dzBoN2FueGk1ZW1xNGFwOHp4bWl6bjEzZiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/QX0q1t8Y3H5qovhthn/giphy.gif" width="500px"/>
